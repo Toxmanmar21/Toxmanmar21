@@ -1,12 +1,12 @@
 # About me
 
-I'm a random guy who decided to go on coding
+I'm a random guy,i'm from iran and i'm not so good at coding,but i'll try
 
 Yeah and that's all
 
 # How do i contact you?
 
-Its simple,you have to email me or contact me on discord at toxmanwashere
+Its simple,you have to email me or contact me on discord at spinguy_
 
 
 my email is toxman1429@gmail.com
