@@ -14,7 +14,7 @@ my email is toxman1429@gmail.com
 # Facts about me
 
 I like Windows Vista
-I am a iranian
+
 
 I actually have a uncyclopedia account,but i won't tell it,my friends know of it
 
