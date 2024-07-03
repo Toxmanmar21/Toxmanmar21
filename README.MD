@@ -1,8 +1,8 @@
 # About me
 
-I'm a random guy,i'm from iran and i'm not so good at coding,but i'll try
+random guy on the internet
 
-Yeah and that's all
+yeah thats fucking it
 
 # How do i contact you?
 
